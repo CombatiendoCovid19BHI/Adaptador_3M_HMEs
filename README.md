@@ -9,3 +9,10 @@ Nosotros NO VENDEMOS ESTOS PRODUCTOS, sólo hemos desarrollado los accesorios y 
 
 
 SU USO ES BAJO SU PROPIO RIESGO! Y RESPONSABILIDAD!
+
+✔️ Diseño 3D:
+Ma. Eloísa Tourret.
+
+✔️ Colaboradores:
+Luis Maenza.
+
