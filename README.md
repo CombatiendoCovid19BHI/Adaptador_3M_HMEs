@@ -16,3 +16,14 @@ Ma. Eloísa Tourret.
 ✔️ Colaboradores:
 Luis Maenza.
 
+
+
+➡️ Más info:
+
+https://drive.google.com/open?id=1IjtEypXWUsVMZ4WkduHdE4fHkn0ALDMDgIU5O48yp24
+
+
+➡️ INGRESÁ A NUESTRO FACEBOOK Y ENTERATE DE TODOS NUESTROS PROYECTOS!
+
+https://www.facebook.com/CombatiendoCovid19BHI/
+
